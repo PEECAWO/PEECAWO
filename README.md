@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PEECAWO
+- 👋 Hi, I’m PEECAWO
 - 👀 I’m interested in Everything
 - ❤️ I Hope you enjoy my job
 - 🗿 Always have FUN
